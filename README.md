@@ -1,2 +1,1 @@
-Merhaba! :elsalla: 
-🎉 Tekrardan herkese selam!
+Hello There 👋
